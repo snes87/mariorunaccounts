@@ -1,5 +1,5 @@
 # mariorunaccounts
-mariorun codici amico ring cast
+mariorun codici amico ringcast
 
 Giacomo Palma: 9805-3450-1973 <br>
 Marco (farenz): Farina: 4439-0547-7023<br>
